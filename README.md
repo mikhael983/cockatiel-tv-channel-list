@@ -1,6 +1,6 @@
 ﻿# Cockatiel.tv (ARCHIVED) 🌱
 
-🎉 **This project has moved!**
+🎉 **This project has moved!!!!1!!1!!1**
 
 All future development continues under **Famelack** 👉 **[github.com/famelack/famelack-channels](https://github.com/famelack/famelack-channels)**
 
